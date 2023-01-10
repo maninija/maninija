@@ -1,4 +1,4 @@
-- Hi, Jacob Manini
+- Hi, I'm Jacob Manini
 - I’m interested in games, anime, hiking, and swimming
 - I’m currently learning about Hawaiian Culture
 - I'm originally from Papakōlea
